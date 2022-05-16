@@ -1,4 +1,4 @@
-# Hi there, I'm Dimas Adi Putra - Seorang [DimasAdiPutra] 👋
+# Hi there, I'm Dimas Adi Putra - Seorang Web Developer 👋
 
 ## I'm a Freelancer, Developer, and UI Designer!!
 
